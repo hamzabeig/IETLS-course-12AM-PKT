@@ -24,6 +24,6 @@
 
 **Week 4 Day 1** [https://youtu.be/hGYRx6kdm5o]
 
-**Week 4 Day 3** []
+**Week 4 Day 3** [https://youtu.be/53WO8dSdclA]
 
 **Week 4 Day 4** []
