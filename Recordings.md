@@ -18,7 +18,7 @@
 
 **Week 3 Day 3** [https://youtu.be/2EZZfZ7-IOw]
 
-**Week 3 Day 4** []
+**Week 3 Day 4** [https://youtu.be/RwD8Te8D-ak]
 
 # Week 4
 
