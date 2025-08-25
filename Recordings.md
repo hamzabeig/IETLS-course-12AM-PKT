@@ -3,3 +3,5 @@
 **Week 1 Day 1** [https://www.youtube.com/watch?v=mc_DZ5wp6Uk]
 
 **Week 1 Day 2** [https://youtu.be/Sgc1AM0z23k]
+
+**Week 1 Day 4** [https://youtu.be/8JSs3XvFK_A]
