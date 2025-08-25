@@ -22,7 +22,7 @@
 
 # Week 4
 
-**Week 4 Day 1** []
+**Week 4 Day 1** [https://youtu.be/hGYRx6kdm5o]
 
 **Week 4 Day 3** []
 
