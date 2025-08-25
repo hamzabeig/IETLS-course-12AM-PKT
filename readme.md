@@ -1,5 +1,6 @@
-# 🎓 IELTS Prep for Fully Funded Scholarships  
+# 🎓 IELTS Prep for Fully Funded Scholarships 
 
+📚 **Class Recordings:** [https://github.com/hamzabeig/IETLS-course-12AM-PKT/blob/main/Recordings.md]
 ⏰ **Time:** 12 AM PKT  
 📅 **Duration:** *17 February 2025 — 14 March 2025*  
 👨‍🏫 **Trainers:** Hamza Baig, Ahmad Raza, Syed Shahzil Imran  
